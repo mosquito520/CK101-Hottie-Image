@@ -1,0 +1,1 @@
+# CK101-Hottie-Image
